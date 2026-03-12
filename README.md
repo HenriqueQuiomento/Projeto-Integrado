@@ -1,0 +1,1 @@
+# Política de Segurança da Informação (PSI) completa para Empresa Fictícia
